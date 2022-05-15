@@ -1,0 +1,1 @@
+# odoosh_technical_training
